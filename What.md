@@ -1,0 +1,10 @@
+# What?
+Last update: 6. February 2023
+
+## User generated content
+We aren't responsible for anything that got created by an user.
+
+## Links to Other Websites
+Our Service may contain links to other websites that are not operated by Us. If You click on a third party link, You will be directed to their site. We strongly advise You to review the Privacy Policy of every site You visit.
+
+We assume no responsibility for the content, privacy policies or practices of any third party sites or services.
